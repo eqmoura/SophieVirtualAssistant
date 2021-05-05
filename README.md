@@ -1,0 +1,1 @@
+Olá, essa é a Sophie, minha assistente virtual pessoal.
